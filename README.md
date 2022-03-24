@@ -1,1 +1,1 @@
-# knowaboutyourplant.com
+# knowaboutyourplanet.com
